@@ -1,3 +1,1 @@
-Hola. 
-Puedes visitar el proyecto desde mi portafolio https://gabrielauzdata.carrd.co/#education
-Junto con mi otros proyectos
+Hello, u can watch the project on my portfolio in Card: https://gabrielauzdata.carrd.co/#education Also I have other projects
